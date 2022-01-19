@@ -1,6 +1,6 @@
 # Kevin Kinney
 
-> Check me out on [LinkedIn!](https://linkedin/in/kevinmkinney)
+> Check me out on [LinkedIn!](https://linkedin.com/in/kevinmkinney)
 
 ## About Me
 
